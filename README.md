@@ -1,2 +1,2 @@
 20213055 Lee_Jeonghoon
-Kookmin Univ. SW
+Kookmin Univ. SW dept.
